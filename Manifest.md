@@ -20,12 +20,12 @@
 
 ### Notre créativité est garante de notre futur
 *Changer les règles du jeu, chercher les océans bleus, innover de manière disruptive, remettre en cause les codes établis sont quelques éléments qui ont fait notre singularité et explique notre succès.*
-*Les Xebians, quel qu’ils soient, se remettent en cause en permanence et cherchent les moyens les plus créatifs d’aborder les sujets.*
+*Les Xebians, quels qu’ils soient, se remettent en cause en permanence et cherchent les moyens les plus créatifs d’aborder les sujets.*
 
 ### Notre agilité explique notre succès
 *Nous sommes les chantres des méthodes agiles que nous appliquons chez nos clients comme à nous mêmes. A ce titre, nous accueillons favorablement et intégrons les changements de toute nature dans nos réflexions. Cet état d’esprit proche de la paranoïa nous permet de nous adapter très rapidement aux  changements technologiques, managériaux, économiques et sociétaux qui s’opèrent dans notre industrie.*
 
-### Nous sommes tous des être accomplis
+### Nous sommes tous des êtres accomplis
 *Notre intelligence sociale compte autant que notre technicité. Nous sommes des personnes équilibrées, qui se différencient par des compétences relationnelles abouties et un savoir être de qualité, synonyme de proactivité, d’écoute active et de capacités de communication à l’écrit comme à l’oral.*
 
 ### Nous sommes collectivement garants de notre modèle économique
