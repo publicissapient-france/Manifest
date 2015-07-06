@@ -1,4 +1,4 @@
-# Manifeste Xebia
+# Manifest Xebia
 
 ### Nous partageons la connaissance
 *Le partage de la connaissance fait partie de l’ADN de Xebia. Les Xebians bénéficient tous de ce partage qui les enrichit chaque jour et doivent en contrepartie, partager leurs savoir-faires et leurs expériences avec leurs collègues et la communauté. Il est de notre devoir de donner autant que l’on reçoit.*
