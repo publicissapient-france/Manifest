@@ -12,7 +12,7 @@
 ### Nos clients paient nos salaires
 *Nous leurs en sommes reconnaissants et leur devons, à ce titre, un service irréprochable, fidèle à notre valeur de “No Compromise On Quality”. Nous partageons leurs objectifs car nous sommes leur bras droit. Ils nous doivent en contrepartie une relation équilibrée, loin de la relation client / fournisseur, car ils nous sollicitent pour des sujets stratégiques pour leur IT.*
 
-### Nous n’avons pas de sujets tabous
+### Nous n’avons pas de sujet tabou
 *Notre société prône la démocratie de parole et tous les sujets peuvent être abordés de manière ouverte et sans censure. Nous communiquons entre nous en toute transparence et prônons l’écoute active et l’amélioration continue. La politique est proscrite chez Xebia.*
 
 ### Nous sommes au service les uns des autres
